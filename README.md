@@ -1,0 +1,1 @@
+# NURGALIMOV-picture-compressor-uninstall-page
